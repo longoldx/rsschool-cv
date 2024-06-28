@@ -1,5 +1,7 @@
 # Evgenii O.
 
+Contact me now e@qualley.ru \ [telegram](https://t.me/korporativen)
+
 ## Who I am
 * Highly motivated and experienced UX-UI designer, software developer and product manager
 ## Skills
